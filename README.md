@@ -6,7 +6,7 @@
 🎯 Future Software Engineer at Microsoft or Google  
 
 </div>
-
+l[Profile views].(https://komarev.com/gbpvc/?username=ahmedlearnSimply&style=flat&color=orange&label=PROFILE+VIEWS) 22
 ---
 
 ## 🚀 About Me  
