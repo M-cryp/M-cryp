@@ -61,8 +61,8 @@
 
 ## 📫 Connect With Me  
 
-- 💼 LinkedIn: (Add your link)  
-- 📧 Email: (Add your email)  
+- 💼 LinkedIn: ([Add your link](https://www.linkedin.com/in/mohammed-mohsen-5380b72b7/))  
+- 📧 Email: (mohsenmohammed937@gmail.com)  
 
 ---
 
